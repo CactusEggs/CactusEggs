@@ -3,10 +3,13 @@
 
 🐇
 I am afk a lot, therefore i am more inclined to respond to whispers!
+
 Jay! Tyler is also fine :) 22
 
-I really like psychology.
-⭐ Kins are Jay Walker, Vash, and John Egbert. blehh.
+Special interests of psychology, World of Warcraft. ^_^
+⭐ kins are Jay Walker, Vash, and John Egbert. blehh.
+
+
 I do not mind c+h! but please do keep in mind if i am around friends it won't be as welcoming!
 If you are under 16 please do not interact with me /nm
 
