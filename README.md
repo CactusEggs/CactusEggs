@@ -4,7 +4,8 @@
 
 
 
-![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/d80eaf4b-5efb-45b4-91ed-603d557202e0)
+![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/b04ed106-7d2a-4f27-af07-54df4de5fdb6)
+
 
   <p align="center">     
   I am afk a lot, therefore i am more inclined to respond to whispers!
