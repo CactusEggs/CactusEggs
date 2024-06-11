@@ -4,13 +4,12 @@
 
 
 
-![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/22862dfa-ab61-45ea-91ab-386618b7a1e7)
-
+![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/d80eaf4b-5efb-45b4-91ed-603d557202e0)
 
   <p align="center">     
   I am afk a lot, therefore i am more inclined to respond to whispers!
 <p align="center">     
-  Jay 22
+  Jay 22 
 <p align="center">     
    Special interests of psychology, World of Warcraft. ^_^
 <p align="center">     
@@ -19,6 +18,5 @@
   ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.
 <p align="center">     
   I do not mind c+h! 
-<p align="center">     
-  If you are under 16 please do not interact with me /nm
-
+<p align="center">    
+  If you are under 16 please do not interact with me /nm 
