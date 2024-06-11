@@ -21,7 +21,7 @@
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
 
-  Jay 22 [+.](https://pronouns.cc/@UFOBUNNY)
+  Jay 22 [+](https://pronouns.cc/@UFOBUNNY)
 <p align="center">     
    Special interests of psychology, World of Warcraft. ^_^
 <p align="center">     
