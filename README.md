@@ -15,7 +15,7 @@ Special interests of psychology, World of Warcraft. ^_^
 
 ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.
 
-I do not mind c+h! but please do keep in mind if i am around friends it won't be as welcoming!
+I do not mind c+h! 
 
 If you are under 16 please do not interact with me /nm
 
