@@ -31,4 +31,4 @@
 <p align="center">     
   I do not mind c+h! 
 <p align="center">    
-  If you are under 16 please do not interact with me /nm 
+  If you are under 16 please do not interact with me.
