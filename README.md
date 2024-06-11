@@ -7,7 +7,7 @@
                                         🐇
               I am afk a lot, therefore i am more inclined to respond to whispers!
 
-             [Jay](https://pronouns.cc/@UFOBUNNY) 22
+             Jay!! 22
 
              Special interests of psychology, World of Warcraft. ^_^
 
