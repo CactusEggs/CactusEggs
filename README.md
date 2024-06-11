@@ -4,13 +4,20 @@
 
 
 
+
 ![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/b04ed106-7d2a-4f27-af07-54df4de5fdb6)
 
 
   <p align="center">     
   I am afk a lot, therefore i am more inclined to respond to whispers!
-<p align="center">     
-  Jay 22 
+  <p align="center">     
+    <p align="center">
+<![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
+      
+![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/6e097acd-3529-40dd-acdf-ab2468b93ddf)
+![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/c04cfe9b-f3eb-4039-af3b-e737756e4d2e)
+![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/02cc3721-d084-4136-b902-be37fa5fca2d)
+<p align="center">  Jay 22 
 <p align="center">     
    Special interests of psychology, World of Warcraft. ^_^
 <p align="center">     
