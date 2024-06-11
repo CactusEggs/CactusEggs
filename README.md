@@ -10,6 +10,7 @@ Special interests of psychology, World of Warcraft. ^_^
 
 ⭐ kins are Jay Walker, Vash, and John Egbert. blehh.
 
+ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.
 
 I do not mind c+h! but please do keep in mind if i am around friends it won't be as welcoming!
 
