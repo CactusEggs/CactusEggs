@@ -23,9 +23,9 @@
 
   Jay 22 [+](https://pronouns.cc/@UFOBUNNY)
 <p align="center">     
-   Special interests of psychology, World of Warcraft. ^_^
+   Special interests of psychology, & World of Warcraft. ^_^
 <p align="center">     
-   ⭐ kins are Jay Walker, Vash, and John Egbert. blehh.
+   ⭐ kins are jay walker, Vash, and john egbert. blehh.
 <p align="center">     
   ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.
 <p align="center">     
