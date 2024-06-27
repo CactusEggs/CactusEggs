@@ -32,3 +32,9 @@
   I do not mind c+h! 
 <p align="center">    
   If you are under 16 please do not interact with me.
+  <p align="center">     
+    <p align="center">
+<![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
+    
+  ![215065](https://github.com/CactusEggs/CactusEggs/assets/172105020/a5a3185c-60c9-4cf4-8c5b-defd0d7ae83d)
+
