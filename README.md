@@ -22,10 +22,11 @@
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
 
   Jay/Tyler, adult (riveting i know) [more about me hehe](https://pronouns.cc/@UFOBUNNY)
+  i am dyslexic, <B))
 <p align="center">     
    Special interests of psychology, & World of Warcraft. ^_^
 <p align="center">     
-   ⭐ kins are jay walker, Vash, and john egbert. blehh.
+   ⭐ kins are jay walker, vash, and john egbert. blehh.
 <p align="center">     
   ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.
 <p align="center">     
