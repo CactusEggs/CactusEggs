@@ -10,6 +10,9 @@
 
   <p align="center">     
   I am afk a lot, therefore i am more inclined to respond to whispers!
+ <p align="center">  
+ <p align="center"> 
+    https://arab.org/click-to-help/
   <p align="center">     
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
