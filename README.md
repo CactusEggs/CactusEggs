@@ -5,7 +5,8 @@
 
 
 
-![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/b04ed106-7d2a-4f27-af07-54df4de5fdb6)
+![image](https://github.com/user-attachments/assets/523da061-ac8b-41fa-88ed-dd8113975a11)
+
 
 
   <p align="center">     
@@ -17,19 +18,20 @@
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
       
-![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/6e097acd-3529-40dd-acdf-ab2468b93ddf)
-![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/c04cfe9b-f3eb-4039-af3b-e737756e4d2e)
-![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/02cc3721-d084-4136-b902-be37fa5fca2d)
+![image](https://github.com/user-attachments/assets/5ae76960-9fdb-4b78-b1e3-c2af7770b521)
+![image](https://github.com/user-attachments/assets/811b2745-7ef8-451b-9a59-981ae25c4dc6)
+![image](https://github.com/user-attachments/assets/2ab6d2d8-765a-4602-bc6b-54dfc5ca7b08)
+
  <p align="center">     
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
 
-  Jay/Tyler, 🏳️‍⚧️man, adult (riveting i know), i am dyslexic. <B)) [more about me hehe](https://pronouns.cc/@UFOBUNNY)
+  Jay/Tyler, transman, adult (riveting i know), i am dyslexic. <B)) [more about me hehe](https://pronouns.cc/@UFOBUNNY)
   
 <p align="center">     
    Special interests of psychology, & World of Warcraft. ^_^
 <p align="center">     
-   ⭐ (high tier) kins are jay walker (ninjago), vash (trigun), and john egbert (homestuck).
+   ⋆˙˳𓂃𓂃𓂃𓂃𓊝𓂃𓂃𓂃  (high tier) kins are jay walker (ninjago), vash (trigun), and john egbert (homestuck).
 <p align="center">     
   ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.
 <p align="center">     
@@ -40,5 +42,4 @@
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
     
-  ![215065](https://github.com/CactusEggs/CactusEggs/assets/172105020/a5a3185c-60c9-4cf4-8c5b-defd0d7ae83d)
 
