@@ -37,7 +37,7 @@
 <p align="center">     
   I do not mind c+h! 
 <p align="center">    
-  If you are under 16 please do not interact with me.
+  If you are under 16 please do not interact with me. twinks do NOT interact.
   <p align="center">     
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
