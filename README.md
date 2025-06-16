@@ -31,7 +31,7 @@
 <p align="center">     
    Special interests of psychology, & World of Warcraft. ^_^
 <p align="center">     
-   ⋆˙˳𓂃𓂃𓂃𓂃𓊝𓂃𓂃𓂃  (high tier) kins are jay walker (ninjago), vash (trigun), and john egbert (homestuck).
+   ⋆˙˳𓂃𓂃𓂃𓂃𓊝𓂃𓂃𓂃  (high tier) kins are jay walker (ninjago), vash (trigun),  john egbert (homestuck). Yosuke (P4)
 <p align="center">     
   ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.
 <p align="center">     
