@@ -33,9 +33,7 @@
 <p align="center">     
    ⋆˙˳𓂃𓂃𓂃𓂃𓊝𓂃𓂃𓂃  (high tier) kins are jay walker (ninjago), vash (trigun),  john egbert (homestuck), yosuke (P4)
 <p align="center">     
-  ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.
-<p align="center">     
-  I do not mind c+h! 
+  ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.    
 <p align="center">    
   I am strictly 18+. -18 and pro-contact paraphilas do not interact. 
   <p align="center">     
