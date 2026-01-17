@@ -18,9 +18,9 @@
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
       
-![image](https://github.com/user-attachments/assets/5ae76960-9fdb-4b78-b1e3-c2af7770b521)
-![image](https://github.com/user-attachments/assets/811b2745-7ef8-451b-9a59-981ae25c4dc6)
-![image](https://github.com/user-attachments/assets/2ab6d2d8-765a-4602-bc6b-54dfc5ca7b08)
+![image](https://cdn.discordapp.com/attachments/738667247395930114/1461964691608961069/IMG_3293.gif?ex=696c7838&is=696b26b8&hm=7ac1d62fa1b3dcc904f60b9368af36c7ec5994b29ed81d65c385c15d6c6587e5&)
+![image](https://cdn.discordapp.com/attachments/738667247395930114/1461964691889721366/IMG_3294.png?ex=696c7838&is=696b26b8&hm=f4ba704b7e33a3672b67e5eba08ffd3099f497c7dcde97a6b03fa43a589711d0&)
+![image]()
 
  <p align="center">     
     <p align="center">
