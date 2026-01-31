@@ -18,7 +18,7 @@
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
       
-![image](https://cdn.discordapp.com/attachments/738667247395930114/1461964691608961069/IMG_3293.gif?ex=696c7838&is=696b26b8&hm=7ac1d62fa1b3dcc904f60b9368af36c7ec5994b29ed81d65c385c15d6c6587e5&)
+![image](https://i.pinimg.com/736x/45/4f/e9/454fe929aad436281c3a1ae311bb4271.jpg)
 
 
 
