@@ -26,6 +26,7 @@
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
 
   Jay/Tyler, transman, adult (riveting i know), i am dyslexic. <B)) 
+  
   [more about me hehe](https://ufoalien.straw.page)
   
 <p align="center">     
