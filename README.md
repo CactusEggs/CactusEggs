@@ -41,4 +41,4 @@
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
     
-I am diagnosed with PTSD; no i will be sharing my trigger. Just know if you accidently trigger it i will be blocking you for 24 hours. /nm
+I am diagnosed with PTSD; no i will be sharing my trigger. Just know if you accidently say my trigger i will be blocking you for 24 hours. /nm
