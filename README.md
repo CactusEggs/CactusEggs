@@ -27,7 +27,7 @@
 
   Jay/Tyler, transman, adult (riveting i know), i am dyslexic & aroace. <B)) 
   [more about me hehe](https://ufoalien.straw.page) 
-  [Artfight](https://artfight.net/~ayleeyunn) 
+|  [Artfight](https://artfight.net/~ayleeyunn) 
   
 <p align="center">     
    Special interests of psychology, & World of Warcraft. ^_^
