@@ -37,7 +37,6 @@
 <p align="center">    
   I am strictly 18+.  
   DNI; Minors
-
   Pro-contact paraphilias rot. Kill yourself, genuinely.
   <p align="center">     
     <p align="center">
