@@ -37,7 +37,7 @@
 <p align="center">    
   I am strictly 18+.  
   DNI; Minors,
-  Pro-contact paraphilias rot. Kill yourself, genuinely.
+  pro-contact paraphilias rot. Kill yourself, genuinely.
   <p align="center">     
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
