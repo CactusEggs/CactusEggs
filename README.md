@@ -36,7 +36,9 @@
   ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.    
 <p align="center">    
   I am strictly 18+.  
-  DNI; PRO-CONTACT PARAPHILIAS AND MINORS!
+  DNI; Minors
+
+  Pro-contact paraphilias rot. Kill yourself, genuinely.
   <p align="center">     
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
