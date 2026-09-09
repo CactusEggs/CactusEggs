@@ -36,8 +36,8 @@
   ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.    
 <p align="center">    
   I am strictly 18+.  
-  DNI; Minors,
-  <p align="center">  
+   <p align="center">  
+  DNI; Minorss
   pro-contact paraphilias rot. Kill yourself, genuinely.
   <p align="center">     
     <p align="center">
