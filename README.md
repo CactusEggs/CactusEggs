@@ -10,6 +10,11 @@
 
   <p align="center">     
   I am afk a lot, therefore i am more inclined to respond to whispers!
+    <p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=wxn2q3uiswxqntjn4qz58yfeq&cover_image=false&theme=default&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=9cd298">
+  </a>
+</p>
  <p align="center">  
  <p align="center"> 
     https://arab.org/click-to-help/
