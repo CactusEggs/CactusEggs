@@ -19,7 +19,7 @@
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
       
-![image](https://cdn.discordapp.com/attachments/738667247395930114/1551076896941539389/image.png?ex=6ab0a86d&is=6aaf56ed&hm=3255a3b8fcc5ee44dd81077295e7cea00c326b36e243ab5022805be49ab62382)
+![image](https://cdn.discordapp.com/attachments/738667247395930114/1551078584850849833/image.png?ex=6ab0aa00&is=6aaf5880&hm=37f49dfc63ee809c20cd0a157f6c0b3a69687145eff832c6be447a2775eff167)
 
 
 
