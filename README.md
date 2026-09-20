@@ -19,7 +19,7 @@
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
       
-![image](https://i.pinimg.com/736x/45/4f/e9/454fe929aad436281c3a1ae311bb4271.jpg)
+![image](https://pbs.twimg.com/media/HEy92OpWAAA6dXl?format=jpg&name=large)
 
 
 
