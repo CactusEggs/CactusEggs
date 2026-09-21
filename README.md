@@ -39,8 +39,9 @@
 <p align="center">    
   I am strictly 18+.  
    <p align="center">  
-  DNI; Minors, and  
-     <p align="center">    
+  DNI; 
+      <p align="center">  
+        minors +
   pro-contact paraphilias. 
   <p align="center">     
     <p align="center">
