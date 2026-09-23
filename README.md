@@ -23,6 +23,7 @@
 
 ![image](https://cdn.discordapp.com/attachments/738667247395930114/1552123736197701704/image.png?ex=6ab4775f&is=6ab325df&hm=57557a5cdcb613f7ee5e634971fd56b8cc3cf72b712f2400b663d0cdf221b3e7)
 
+-------------------------------------------------------------------------------------------
  <p align="center">     
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
