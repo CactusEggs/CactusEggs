@@ -34,7 +34,6 @@
    ⋆˙˳𓂃𓂃𓂃𓂃𓊝𓂃𓂃𓂃  (high tier) kins are jay walker (ninjago), vash (trigun),  john egbert (homestuck), yosuke (P4)
 <p align="center">   all my  kins are usually just variants of these guys ^
 <p align="center">     
-
   ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.    
 <p align="center">    
   I am strictly 18+.  
