@@ -37,6 +37,10 @@
   ALL MY FRIENDS ARE AMAZING. I LOVE THEM SO MUCH. YOU DO NOT UNDERSTAND.    
 <p align="center">    
   I am strictly 18+.  
+<p align="center">   
+  
+-  [Derek](https://open.spotify.com/playlist/4jZNVAU0bKVv7b4V8jblIZ?si=92f31c8dd6a54e1b) - 
+	   [Avery](https://open.spotify.com/playlist/7fBsumOqBpdH3c3sXkFhNQ?si=ceecd681961a4ba8) 
      
   ![image](https://cdn.discordapp.com/attachments/738667247395930114/1552123736197701704/image.png?ex=6ab4775f&is=6ab325df&hm=57557a5cdcb613f7ee5e634971fd56b8cc3cf72b712f2400b663d0cdf221b3e7)
 
