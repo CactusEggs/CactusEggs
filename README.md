@@ -10,7 +10,7 @@
 
   <p align="center">     
   I am afk a lot, therefore i am more inclined to respond to whispers!
-	  C+H IS TOTALLY OK!! 
+	|  C+H IS TOTALLY OK!! 
     <p align="center">
 </p>
  <p align="center">  
