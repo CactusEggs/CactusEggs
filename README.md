@@ -53,4 +53,4 @@
     <p align="center">
 <![image](https://github.com/CactusEggs/CactusEggs/assets/172105020/1a069d6f-cde9-4d72-bce9-0756906e1d27)" 
 
-![image](https://i.pinimg.com/736x/ae/c2/c2/aec2c29c885fc0b153ca4346cf1cae75.jpg)
+![image](https://i.pinimg.com/736x/b6/ff/93/b6ff9338cd2daa1d19f869c392a57104.jpg)
